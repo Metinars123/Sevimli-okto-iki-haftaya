@@ -1,0 +1,1 @@
+# Sevimli-okto-iki-haftaya
